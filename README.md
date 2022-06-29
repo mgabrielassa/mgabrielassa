@@ -12,7 +12,7 @@
  
  <br>
  
-  ### Contato pelas redes abaixo!
+  ### Contato pelas redes abaixo:
  
 <div> 
  
